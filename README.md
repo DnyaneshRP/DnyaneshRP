@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on various projects
 - 📫 How to reach me : dnyaneshp2005@gmail.com
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: I am someone who values peace and calmness, with a strong passion for nature. 
+- ⚡ Fun fact: I am someone who values peace and a nature lover! 
 
 <!---
 DnyaneshRP/DnyaneshRP is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
